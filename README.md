@@ -1,0 +1,2 @@
+# [read more](http://www.cotizarsoat.co/)
+Despues de largas conversaciones con y las promesas de apoyo de mi conyuge e hijos, decidi comprar la casa de apartamentos, en ese momento mi primera. Desde entonces hemos formado una compania familiar y tenemos varios pequeno [read more](http://www.cotizarsoat.co/) s edificios en Los Angeles. Ahora tengo otra fuente de ingresos, gran parte debido a la decision que tome hace 40 anos de comprar esa valiosa poliza de seguro de vida.
